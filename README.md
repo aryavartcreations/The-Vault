@@ -10,7 +10,7 @@ an integral part of the Privacy Policy Network Service Use Agreement. You do not
 with the personal information we request, but in many cases, if you choose not to do so, we will not
 be able to provide you with our products or services or respond to any questions you may have. If
 you have any questions about the data processing practices described in this Privacy Policy, please
-contact us at [aryavartcreations@outlook.com](mailto:aryavartcreations@outlook.com) so that we can address your specific needs. We are
+contact us at [contact@aryavartcreations.com](mailto:contact@aryavartcreations.com) so that we can address your specific needs. We are
 happy to receive your feedback.
 
 <h3> I. How we collect information</h3>
